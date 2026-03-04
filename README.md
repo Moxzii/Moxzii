@@ -2,9 +2,7 @@
 
 HELLO... ˆ𐃷ˆ
 
-My name is Moxzii!!!! (˶ᵔ ᵕ ᵔ˶)
-
-♡ˎˊ˗ i am VERY FRIENDLY!!!! I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
+♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶)  I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
 
 ♬⋆.˚ C+H ALWAYS!!!!!! dont hesitate !!!!!!! I LOVE YOU!!!!!! ˎˊ˗
 
