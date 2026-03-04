@@ -12,7 +12,7 @@ My name is Moxzii!!!! (˶ᵔ ᵕ ᵔ˶)
 
 ⋆˚✿˖° My current interests r: Danganronpa, Splatoon, FNAF, Cuphead, Miraculous, Cookie run, Sonic, Dandy's World, and Homestuck !! Most of my ponies will be based around these things ^^
 
-Please do not ask for personal information
+𑣲 Please do not ask for personal information
 
 ⋆˚꩜｡🍎 uhmmm a fun fact!!! i once downed a big ol apple in 13 seconds!!! yes i timed it!!!! i really like apples!!!! theyre the best fruit!!!!
 
