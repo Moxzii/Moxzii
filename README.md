@@ -18,6 +18,8 @@ HELLO... ˆ𐃷ˆ
 
 𑣲 Please do not ask for personal information
 
+<img width="1049" height="438" alt="Screenshot 2026-03-04 235121" src="https://github.com/user-attachments/assets/4a699e0a-c0a0-4874-9bc1-7180ea5eea5b" />
+
 ⋆˚꩜｡🍎 uhmmm a fun fact!!! i once downed a big ol apple in 13 seconds!!! yes i timed it!!!! i really like apples!!!! theyre the best fruit!!!!
 
 !!!!! Racism, Homophobia, Ableism, Fatphobia/Fat jokes, Rape Jokes, & other forms of assholeism & bigotry will not b tolerated !!!! ( ` ᴖ ´ )
