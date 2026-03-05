@@ -1,5 +1,4 @@
-
-https://media.discordapp.net/attachments/1370272634775928887/1478983979070656532/IMG_8774.jpg?ex=69aa62aa&is=69a9112a&hm=bb41d88a677d5660a9780178367079396d1d3898265ceeda916ab55264f2cf5b&=&format=webp
+https://media.discordapp.net/attachments/1370272634775928887/1478983978374664222/IMG_8772.jpg?ex=69aa62aa&is=69a9112a&hm=c8571e8ede43caacea2278f1b2a63c754ee894fa0edf386054432eecd2280975&=&format=webp
 
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
 
