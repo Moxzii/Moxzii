@@ -8,6 +8,8 @@ HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶)  I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
 
+![9FE53A3C-A2C9-4912-805E-2FDE0CAC30A6](https://github.com/user-attachments/assets/d77ba037-1ee4-4a9b-a8a8-6f0d2235a5df)
+
 ♬⋆.˚ C+H ALWAYS!!!!!! dont hesitate !!!!!!! I LOVE YOU!!!!!! ˎˊ˗
 
 ｡𖦹°‧ w2i is appriciated cuz im like always offtab and might not notice u .... sorryyyy..... x.x
