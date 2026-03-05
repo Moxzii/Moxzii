@@ -1,6 +1,6 @@
-![description](https://www.pinterest.com/pin/1073053048735875253/)
 
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
+<img width="725" height="409" alt="Screenshot 2026-03-04 233532" src="https://github.com/user-attachments/assets/28f02b94-eb27-446a-b980-b1654eb6fa06" />
 
 HELLO... ˆ𐃷ˆ
 
