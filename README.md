@@ -9,6 +9,8 @@ HELLO... ˆ𐃷ˆ
 
 ♬⋆.˚ C+H ALWAYS!!!!!! dont hesitate !!!!!!! I LOVE YOU!!!!!! ˎˊ˗
 
+⊹ ࣪ ˖ i WILL flock towards u if u have c+h im always looking 4 ppl w it i love 2 hang out ۶ৎ
+
 ｡𖦹°‧ w2i is appriciated cuz im like always offtab and might not notice u .... sorryyyy..... x.x
 
 🧁𐙚 My birthday is on 11/28!!!! wahooo!!!!
@@ -17,7 +19,6 @@ HELLO... ˆ𐃷ˆ
 
 𑣲 Please do not ask for personal information
 
-a-c0a0-4874-9bc1-7180ea5eea5b" />
 
 ⋆˚꩜｡🍎 uhmmm a fun fact!!! i once downed a big ol apple in 13 seconds!!! yes i timed it!!!! i really like apples!!!! theyre the best fruit!!!!
 
@@ -26,6 +27,8 @@ a-c0a0-4874-9bc1-7180ea5eea5b" />
 .ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
 
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ്ദി◝ ⩊ ◜)
+
+‼🧃🍎 I'll make more things like a strawpage and a caard one day please believe in me .☘︎ ݁˖
 
 <img width="1076" height="247" alt="Screenshot 2026-03-05 000729" src="https://github.com/user-attachments/assets/8472ab82-fa4e-4b12-81af-d4e1e6e41c10" />
 
