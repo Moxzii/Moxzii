@@ -1,14 +1,12 @@
 
-<img width="1058" height="445" alt="Screenshot 2026-03-04 235110" src="https://github.com/user-attachments/assets/5b700de0-b506-49b5-965e-0c0efa38a425" />
-
+<img width="1076" height="247" alt="Screenshot 2026-03-05 000729" src="https://github.com/user-attachments/assets/a8073911-5243-495f-9c26-8fd0ea98180a" />
+<img width="1066" height="248" alt="Screenshot 2026-03-05 000742" src="https://github.com/user-attachments/assets/039b9543-748c-4c93-9f7f-94c677a72d74" />
 
 ⋆｡‧˚ʚ🍎ɞ˚‧｡⋆
 
 HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶)  I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
-
-![9FE53A3C-A2C9-4912-805E-2FDE0CAC30A6](https://github.com/user-attachments/assets/d77ba037-1ee4-4a9b-a8a8-6f0d2235a5df)
 
 ♬⋆.˚ C+H ALWAYS!!!!!! dont hesitate !!!!!!! I LOVE YOU!!!!!! ˎˊ˗
 
@@ -20,7 +18,7 @@ HELLO... ˆ𐃷ˆ
 
 𑣲 Please do not ask for personal information
 
-<img width="1049" height="438" alt="Screenshot 2026-03-04 235121" src="https://github.com/user-attachments/assets/4a699e0a-c0a0-4874-9bc1-7180ea5eea5b" />
+a-c0a0-4874-9bc1-7180ea5eea5b" />
 
 ⋆˚꩜｡🍎 uhmmm a fun fact!!! i once downed a big ol apple in 13 seconds!!! yes i timed it!!!! i really like apples!!!! theyre the best fruit!!!!
 
@@ -29,3 +27,6 @@ HELLO... ˆ𐃷ˆ
 .ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
 
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ്ദി◝ ⩊ ◜)
+
+<img width="1076" height="247" alt="Screenshot 2026-03-05 000729" src="https://github.com/user-attachments/assets/8472ab82-fa4e-4b12-81af-d4e1e6e41c10" />
+
