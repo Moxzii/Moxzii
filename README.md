@@ -1,6 +1,7 @@
 
+<img width="725" height="409" alt="Screenshot 2026-03-04 233532" src="https://github.com/user-attachments/assets/410f95fb-9caa-4878-a4c3-bb1e42868a00" />
+
 ⋆｡‧˚ʚ🍓ɞ˚‧｡⋆
-<img width="725" height="409" alt="Screenshot 2026-03-04 233532" src="https://github.com/user-attachments/assets/28f02b94-eb27-446a-b980-b1654eb6fa06" />
 
 HELLO... ˆ𐃷ˆ
 
