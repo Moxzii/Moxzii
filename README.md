@@ -26,6 +26,8 @@ HELLO... ˆ𐃷ˆ
 
 .ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
 
+one day every1 in the danganronpa ponytown space will b my friend and ill b mentioned in their github or something idk what friends do on ponytown
+
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ്ദി◝ ⩊ ◜)
 
 ‼🧃🍎 I'll make more things like a strawpage and a caard one day please believe in me .☘︎ ݁˖
