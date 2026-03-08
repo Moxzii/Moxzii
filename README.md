@@ -17,18 +17,21 @@ HELLO... ˆ𐃷ˆ
 
 ⋆˚✿˖° My current interests r: Danganronpa, Splatoon, FNAF, Cuphead, Miraculous, Cookie run, Sonic, Dandy's World, and Homestuck !! Most of my ponies will be based around these things ^^
 
-𑣲 Please do not ask for personal information
-
-
 ⋆˚꩜｡🍎 uhmmm a fun fact!!! i once downed a big ol apple in 13 seconds!!! yes i timed it!!!! i really like apples!!!! theyre the best fruit!!!!
-
-!!!!! Racism, Homophobia, Ableism, Fatphobia/Fat jokes, Rape Jokes, & other forms of assholeism & bigotry will not b tolerated !!!! ( ` ᴖ ´ )
-
-.ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
 
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ്ദി◝ ⩊ ◜)
 
-‼🧃🍎 I'll make more things like a strawpage and a caard one day please believe in me .☘︎ ݁˖
+<img width="462" height="105" alt="cooltext503699260414899" src="https://github.com/user-attachments/assets/1783f9a2-d2b5-46f2-9a67-e24f9eb81fcd" />
+
+!!!!! Racism, Homophobia, Ableism, Fatphobia/Fat jokes, Rape Jokes, & other forms of assholeism & bigotry will not b tolerated !!!! ( ` ᴖ ´ )
+
+DNI: darkships, although i know it really depends on the person for what defines a darkship, i can't find myself wanting to be friends with someone that i know is into stuff like that.
+
+Please do not vent to me without permisson, no matter who you are or how close you think i am, i don't appricate it. i've had a very a bad experience with someone who'd constantly dump their problems onto me and was generally abusive, so it'll just trigger bad memories, a bad mood, and i'll just ignore you.
+
+.ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
+
+Please have basic etiquette when it comes to interacting with me, such as not covering me unless i myself go behind you or give permisson/consent is implied, not prying into my personal life or pressuring me into telling you things im not comfortable with sharing yet, refraining from making fun of me and things i hold very close to me, and other forms of manners.
 
 <img width="1076" height="247" alt="Screenshot 2026-03-05 000729" src="https://github.com/user-attachments/assets/8472ab82-fa4e-4b12-81af-d4e1e6e41c10" />
 
