@@ -25,13 +25,11 @@ Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ�
 
 !!!!! Racism, Homophobia, Ableism, Fatphobia/Fat jokes, Rape Jokes, & other forms of assholeism & bigotry will not b tolerated !!!! ( ` ᴖ ´ )
 
-DNI: darkships, although i know it really depends on the person for what defines a darkship, i can't find myself wanting to be friends with someone that i know is into stuff like that.
-
-Please do not vent to me without permisson, no matter who you are or how close you think i am, i don't appricate it. i've had a very a bad experience with someone who'd constantly dump their problems onto me and was generally abusive, so it'll just trigger bad memories, a bad mood, and i'll just ignore you.
+Please do not vent to me without permisson, no matter who you are or how close you think i am with you, i don't appricate it. i've had a very a bad experience with someone who'd constantly dump their problems onto me and was generally abusive, so it'll just trigger bad memories and a bad mood.
 
 .ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
 
-Please have basic etiquette when it comes to interacting with me, such as not covering me unless i myself go behind you or give permisson/consent is implied, not prying into my personal life or pressuring me into telling you things im not comfortable with sharing yet, refraining from making fun of me and things i hold very close to me, and other forms of manners.
+Please have basic etiquette when it comes to interacting with me, such as not covering me unless i myself go behind you or give permisson/consent is implied, not prying into my personal life or pressuring me into telling you things im not comfortable with sharing yet, refraining from making fun of me and things i hold very close to me(again i am very sensitive), and other forms of manners. if you need any more specifics please don't hesitate to ask, i don't mind.
 
 <img width="1076" height="247" alt="Screenshot 2026-03-05 000729" src="https://github.com/user-attachments/assets/8472ab82-fa4e-4b12-81af-d4e1e6e41c10" />
 
