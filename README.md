@@ -23,7 +23,10 @@ Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ�
 
 ⋆.˚ Feel free to discuss your interests, ask for advice, ask for my opinion on fandom topics, and stuff along those lines. i might not be paying much attention to some of it but its never a bother and i'll lyk if im not in the mood if u ask incase ur ever worried!!!
 
-<img width="462" height="105" alt="cooltext503699260414899" src="https://github.com/user-attachments/assets/1783f9a2-d2b5-46f2-9a67-e24f9eb81fcd" />
+₊˚⊹ᰔ Discussion about romance, ships included, are encouraged heavily!! (with the exception incest and pedophilia based relationships.) As stereotypical as this may sound (or doesn't, i dont have a frame of reference), i wish to learn and understand more about romance and its many forms. though i think i have a decent grasp on it already and i find it very interesting + entertaining to think about, it's always nice to hear others thoughts on it. though sex is a different story, i find myself either apathetic towards or grossed out by it depending on the mood. i also find it boring, but that's probably a given. Avoid steering the conversation in this direction if its not an issue. ₊⊹
+
+
+
 
 !!!!! Racism, Homophobia, Ableism, Fatphobia/Fat jokes, Rape Jokes, & other forms of assholeism & bigotry will not b tolerated !!!! ( ` ᴖ ´ )
 
