@@ -9,7 +9,7 @@ HELLO... ˆ𐃷ˆ
 
 ♬⋆.˚ C+H ALWAYS!!!!!! dont hesitate !!!!!!! I LOVE YOU!!!!!! ˎˊ˗
 
-⊹ ࣪ ˖ i WILL flock towards u if u have c+h im always looking 4 ppl w it i love 2 hang out ۶ৎ
+⊹ ࣪ ˖ i WILL flock towards u if u have c+h btw --> i feel uncomfortable when im not sitting w some1 :0) ۶ৎ
 
 ｡𖦹°‧ i'm not good at interacting first so if u wanna have a conversation you'll have 2 start it + im usually offtab so pls whisper to get my attention x.x sowwwyyyyyy.....
 
