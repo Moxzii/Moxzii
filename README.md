@@ -13,6 +13,8 @@ HELLO... ˆ𐃷ˆ
 
 ｡𖦹°‧ i'm not good at interacting first so if u wanna have a conversation you'll have 2 start it + im usually offtab so pls whisper to get my attention x.x sowwwyyyyyy.....
 
+ꉂ`𖦹 No!! --> :0) is not a double chin its a cleownnnn nosie plleeeasse stop asking (᨟ ͜● ᨟)
+
 🧁𐙚 My birthday is on 11/28!!!! wahooo!!!!
 
 ⋆˚✿˖° My current interests r: Danganronpa, Splatoon, FNAF, Poppy Playtime, Cuphead, Miraculous, Cookie run, Sonic, GOBB, Dandy's World, and Homestuck !! Most of my ponies will be based around these things ^^
