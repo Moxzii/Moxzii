@@ -1,5 +1,3 @@
-<img width="786" height="562" alt="janey ad yatta" src="https://github.com/user-attachments/assets/2ec6069f-03e1-4365-ae2a-0666055d9bb8" />
-
 
 ![Visitor Count](https://profile-counter.glitch.me/{Moxzii}/count.svg)
 
