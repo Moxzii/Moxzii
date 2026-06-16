@@ -1,8 +1,8 @@
-https://media.discordapp.net/attachments/1370272634775928887/1516253018402590911/Untitled342_20260615202719.png?ex=6a31f82a&is=6a30a6aa&hm=ebfeeb4836c9066540e87fbf4c8476dd92daf2c03e4e7e2016088f8f98867f15&=&format=webp&quality=lossless&width=786&height=562
+<img width="786" height="562" alt="janey ad yatta" src="https://github.com/user-attachments/assets/2ec6069f-03e1-4365-ae2a-0666055d9bb8" />
+
 
 ![Visitor Count](https://profile-counter.glitch.me/{Moxzii}/count.svg)
 
--j
 HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶)  I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
