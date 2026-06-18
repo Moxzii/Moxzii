@@ -13,19 +13,16 @@ HELLO... ˆ𐃷ˆ
 
 🧁𐙚 My birthday is on 11/28!!!! wahooo!!!!
 
+Lmk if u need anything or if im behaving in a way that makes u uncomfy or if i could b nicer!!! i might get defensive or not know how 2 respond right away 2 critism because it immediatly makes my heartrate shoot up because ill think you hate me??/ but thats just an in-the-moment thing and ill get over and really appricate the feedback after a little while!!! ദ്ദി◝ ⩊ ◜)
 
-Lmk if u need anything or if im behaving in a way that makes u uncomfy!!!! ദ്ദി◝ ⩊ ◜)
+⋆˚ʚɞ i rarely use proper if any puncuation im srry!!! i do infact have an education above the 5th grade (surprise i know!!) but i just never remember 2 do it bruehufhuhhhh........ consider it my funky typing quirk if that makes it any more bearable
 
 ⋆.˚ Feel free to discuss your interests, ask for advice, ask for my opinion on fandom topics, and stuff along those lines. i might not be paying much attention to some of it but its never a bother and i'll lyk if im not in the mood if u ask incase ur ever worried!!!
 
 
+.ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! suddenly yelling at me can freak me out for a whole day and if i even think someone might not like me i start melting awayyyy (ó﹏ò｡) (bars? hmmm...) reassurance as much as your patience allows is encouraged :o)
 
-<img width="462" height="105" alt="cooltext503699260414899" src="https://github.com/user-attachments/assets/1783f9a2-d2b5-46f2-9a67-e24f9eb81fcd" />
- 
- (its meant to be spelt differently i know but i didnt know then and now i can't change it..,. uh its a work in progress!!)
-
-
-.ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!! (ó﹏ò｡)
+im so so very sorry if i suddenly start acting nasty towards you or other people!!! my health greatly affects my mood and although this doesnt excuse any impolite behaviour i do struggle with sleeping or eating properly and one wrong thing said can tick me off for a few hours!!!! its JUST like the office temperature in fnaf ucn..... dude.......   -  during these times (if you feel like it) i ask of u 2 remind me 2 eat or take a nap or shrimply avoid talking to me until it passes :o) and if its because someone said something that made me upset, ill usually go on intwc or dni until ive calmed down and will try to apologize for anything said out of line during these periods!!! as far as i know this is probably caused by my adhd + the whole executive dysfunction thing (diagnosed!!! yaaaaaaay!! confetti confetti!!!) and being able to handle about as much stress as a rabbit
 
 ⋆˚࿔ Please have basic etiquette when it comes to interacting with me, such as not covering me unless i myself go behind you or give permisson/consent is implied, not prying into my personal life or pressuring me into telling you things im not comfortable with sharing yet, refraining from making fun of me and things i hold very close to me (again i am very sensitive), and other forms of manners. if you need any more specifics please don't hesitate to ask, i don't mind. (..◜ᴗ◝..)
 
