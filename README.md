@@ -21,7 +21,7 @@ Lmk if u need anything or if im behaving in a way that makes u uncomfy or if i c
 
 
 .ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!!(ó﹏ò｡) 
-im so so very sorry if i suddenly start acting nasty towards you or other people!!! my health greatly affects my mood and although this doesnt excuse any impolite behaviour i do struggle with sleeping or eating properly and one wrong thing said can tick me off for a few hours!!!! its JUST like the office temperature in fnaf ucn..... dude.......   -  during these times (if you feel like it) i ask of u 2 remind me 2 eat or take a nap or shrimply avoid talking to me until it passes :o) and if its because someone said something that made me upset, ill usually go on intwc or dni until ive calmed down and will try to apologize for anything said out of line during these periods!!!
+
 
 ⋆˚࿔ Please have basic etiquette when it comes to interacting with me, such as not covering me unless i myself go behind you or give permisson/consent is implied, not prying into my personal life or pressuring me into telling you things im not comfortable with sharing yet, refraining from making fun of me and things i hold very close to me (again i am very sensitive), and other forms of manners. if you need any more specifics please don't hesitate to ask, i don't mind. (..◜ᴗ◝..)
 
