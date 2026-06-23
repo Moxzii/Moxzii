@@ -1,5 +1,4 @@
-
-![Visitor Count](https://profile-counter.glitch.me/{Moxzii}/count.svg)
+ART FIGHT IS HERE!!!! --> https://artfight.net/~Moxzii
 
 HELLO... ˆ𐃷ˆ
 
