@@ -8,6 +8,7 @@ ART FIGHT IS HERE!!!! --> https://artfight.net/~Moxzii
 <img width="99" height="56" alt="betrayed 1xx stampt 2" src="https://github.com/user-attachments/assets/eb4588a9-bc98-4506-87a4-49859dff452b" />
 
 
+
 HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B OOMFSS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
@@ -19,6 +20,12 @@ HELLO... ˆ𐃷ˆ
 ｡𖦹°‧ im a playing a game while idling on ponytown warrior, even if u whisper me ill prolly respond late if at all unless im ontab lel sorry!!! i do see ur messages tho (..◜ᴗ◝..)
 
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
+
+<img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" /><img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
+<img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
+<img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
+
+
 
 u may take inspo from my ponies!!! i would love to help you out with something u want to add 2 ur pony from mine and i enjoy seeing my work referenced so dont b afraid 2 ask 4 help (if im idling u can send me a friend req and ill help once im on again) !! however pls do not directly copy my ponies!!! its not very nice :o(
 
