@@ -1,8 +1,13 @@
 ART FIGHT IS HERE!!!! --> https://artfight.net/~Moxzii
 
+<img width="99" height="56" alt="loveshot stamp 2" src="https://github.com/user-attachments/assets/45318514-8422-4682-9fd1-c0adcfb8473f" />
+<img width="99" height="56" alt="loveshot stamp" src="https://github.com/user-attachments/assets/c7309a5e-6fe0-4033-82b9-b4bf10af27fa" />
+<img width="99" height="56" alt="loveshot stamp" src="https://github.com/user-attachments/assets/12f027aa-daac-43d6-93c6-32041cbf8c3f" />
+
+
 HELLO... ˆ𐃷ˆ
 
-♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶)  I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
+♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B OOMFSS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
 
 ♬⋆.˚ C+H ALWAYS!!!!!! especially when theres other people, everyone come hang out!! i hate seeing my pony lonely so dont b shy!!! ˎˊ˗
 
@@ -15,4 +20,5 @@ Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്
 u may take inspo from my ponies!!! i would love to help you out with something u want to add 2 ur pony from mine and i enjoy seeing my work referenced so dont b afraid 2 ask 4 help (if im idling u can send me a friend req and ill help once im on again) !! however pls do not directly copy my ponies!!! its not very nice :o(
 
 
-although i allow anyone to sit with me, please keep in mind that im not comfortable with mafiosos sitting with me while im elliot with shipful intent!!! in my brain theyre related :o/ u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
+although i allow anyone to sit with me, please keep in mind that im not comfortable with Pizzadebt specificaly as in my brain theyre related!!! u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
+
