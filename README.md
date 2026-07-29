@@ -13,15 +13,13 @@ HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B OOMFSS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
 
-♬⋆.˚ C+H ALWAYS!!!!!! especially when theres other people, everyone come hang out!! i hate seeing my pony lonely so dont b shy!!! ˎˊ˗
-
-⊹ ࣪ ˖ i WILL flock towards u if u have c+h btw --> i love sitting with strangers hi guys me tooooo! ۶ৎ
+♬⋆.˚ Cuddle + hide/ always!! i hate seeing my pony lonely, dont b shy!!! and u can sit even when theres other ppl w me, every1 come hang out!!! ˎˊ˗
 
 ｡𖦹°‧ im a playing a game while idling on ponytown warrior, even if u whisper me ill prolly respond late if at all unless im ontab lel sorry!!! i do see ur messages tho (..◜ᴗ◝..)
 
-Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
+۶ৎ Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
 
-Sign my atabook 2 see the number go up!!!!!!!
+⊹ ࣪ ˖ Sign my atabook 2 see the number go up!!!!!!!
 
 <img width="790" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
 
@@ -34,3 +32,4 @@ u may take inspo from my ponies!!! i would love to help you out with something u
 although i allow anyone to sit with me, please keep in mind that im not comfortable with Pizzadebt specificaly as in my brain theyre related!!! u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
 
 
+Ur chat may b hidden for however long if ur being gross or annoying, but rarely perma blocked. However, Fat/Racial caricature ponies r instantly perma blocked, sorry!!!!
