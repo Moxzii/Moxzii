@@ -21,9 +21,8 @@ HELLO... ˆ𐃷ˆ
 
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
 
-<img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" /><img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
-<img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
-<img width="700" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
+<img width="760" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
+
 
 
 
