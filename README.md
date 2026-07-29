@@ -4,25 +4,15 @@ HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶)  I LOVE MAKING FRIENDS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
 
-♬⋆.˚ C+H ALWAYS!!!!!! dont hesitate !!!!!!! I LOVE YOU!!!!!! ˎˊ˗
+♬⋆.˚ C+H ALWAYS!!!!!! especially when theres other people, everyone come hang out!! i hate seeing my pony lonely so dont b shy!!! ˎˊ˗
 
 ⊹ ࣪ ˖ i WILL flock towards u if u have c+h btw --> i love sitting with strangers hi guys me tooooo! ۶ৎ
 
-｡𖦹°‧ i'm not good at interacting first so if u wanna have a conversation you'll have 2 start it + im usually offtab so pls whisper to get my attention x.x sowwwyyyyyy.....
+｡𖦹°‧ im a playing a game while idling on ponytown warrior, even if u whisper me ill prolly respond late if at all unless im ontab lel sorry!!! i do see ur messages tho (..◜ᴗ◝..)
 
-🧁𐙚 My birthday is on 11/28!!!! wahooo!!!!
+Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
 
-Lmk if u need anything or if im behaving in a way that makes u uncomfy or if i could b nicer!!!  ദ്ദി◝ ⩊ ◜)
-
-⋆˚ʚɞ i rarely use proper if any puncuation im srry!!! i do infact have an education above the 5th grade (surprise i know!!) but i just never remember 2 do it bruehufhuhhhh........ consider it my funky typing quirk if that makes it any more bearable
-
-⋆.˚ Feel free to discuss your interests, ask for advice, ask for my opinion on fandom topics, and stuff along those lines. i might not be paying much attention to some of it but its never a bother and i'll lyk if im not in the mood if u ask incase ur ever worried!!!
+u may take inspo from my ponies!!! i would love to help you out with something u want to add 2 ur pony from mine and i enjoy seeing my work referenced so dont b afraid 2 ask 4 help (if im idling u can send me a friend req and ill help once im on again) !! however pls do not directly copy my ponies!!! its not very nice :o(
 
 
-.ೀ Please b nice 2 me!!!! i'm a bit slow and very sensitive!!! i will start crying !!!!!(ó﹏ò｡) 
-
-
-⋆˚࿔ Please have basic etiquette when it comes to interacting with me, such as not covering me unless i myself go behind you or give permisson/consent is implied, not prying into my personal life or pressuring me into telling you things im not comfortable with sharing yet, refraining from making fun of me and things i hold very close to me (again i am very sensitive), and other forms of manners. if you need any more specifics please don't hesitate to ask, i don't mind. (..◜ᴗ◝..)
-
-♬⋆.˚ Keep in mind at all times that i am a MINOR!!! i don't know everything and i respond to every situation as a 13-16 year old should be expected to. no matter how mature you think i am or how wise old wizardful my vibes are, i am a child!!! not a philosopher, not an old monk, and not a therapist!! i'm still my age despite that and should be treated as such. (｡ᵕ ◞ _◟)
-
+although i allow anyone to sit with me, please keep in mind that im not comfortable with mafiosos sitting with me while im elliot with shipful intent!!! in my brain theyre related :o/ u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
