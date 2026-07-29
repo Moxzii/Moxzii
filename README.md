@@ -31,3 +31,6 @@ u may take inspo from my ponies!!! i would love to help you out with something u
 
 although i allow anyone to sit with me, please keep in mind that im not comfortable with Pizzadebt specificaly as in my brain theyre related!!! u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
 
+
+lotsa info on my strawpage and pronouns page, so go check them out if ur curious abt the mox-a-million :o3 i worked hard on them!!!
+
