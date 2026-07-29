@@ -21,6 +21,8 @@ HELLO... ˆ𐃷ˆ
 
 Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
 
+Sign my atabook 2 see the number go up!!!!!!!
+
 <img width="790" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
 
 
@@ -31,6 +33,4 @@ u may take inspo from my ponies!!! i would love to help you out with something u
 
 although i allow anyone to sit with me, please keep in mind that im not comfortable with Pizzadebt specificaly as in my brain theyre related!!! u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
 
-
-lotsa info on my strawpage and pronouns page, so go check them out if ur curious abt the mox-a-million :o3 i worked hard on them!!!
 
