@@ -20,7 +20,7 @@ HELLO... ˆ𐃷ˆ
 
 ⊹ ࣪ ˖ Sign my atabook 2 see the number go up!!!!!!!
 
-<img width="790" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
+<img width="730" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
 
 
 
