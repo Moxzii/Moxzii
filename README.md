@@ -37,4 +37,4 @@ Ur chat may b hidden for however long if ur being gross or annoying, but rarely 
 
 
 
-<img width="680" height="561" alt="wow 1x and loveshot wowowow" src="https://github.com/user-attachments/assets/863009ae-df07-435d-be83-90738507ec09" />
+<img width="780" height="561" alt="wow 1x and loveshot wowowow" src="https://github.com/user-attachments/assets/863009ae-df07-435d-be83-90738507ec09" />
