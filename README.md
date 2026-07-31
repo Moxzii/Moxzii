@@ -10,7 +10,7 @@ ART FIGHT IS HERE!!!! --> https://artfight.net/~Moxzii
 
 HELLO... ˆ𐃷ˆ
 
-♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B OOMFSS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! (i might get a bit shy tho,,,,) ˎˊ˗
+♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B MOOTS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! (i might get a bit shy tho,,,,) ˎˊ˗
 
 ♬⋆.˚ Cuddle + hide/hug always!! i hate seeing my pony lonely it makes me antsy, so dont b shy!!! and u can sit even when theres other ppl w me, every1 come hang out!!! ˎˊ˗
 
@@ -19,6 +19,8 @@ HELLO... ˆ𐃷ˆ
 ۶ৎ Lmk if u need anything or if im behaving in a way that makes u uncomfy!!  ദ്ദി◝ ⩊ ◜)
 
 ⊹ ࣪ ˖ Sign my atabook 2 see the number go up!!!!!!!
+
+the first strawpage is for ponytown, while the second one is my general personal one! wow!
 
 <img width="730" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
 
@@ -31,9 +33,10 @@ u may take inspo from my ponies!!! i would love to help you out with something u
 although i allow anyone to sit with me, please keep in mind that im not comfortable with Pizzadebt specificaly as in my brain theyre related!!! u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
 
 
-Ur chat may b hidden for however long if ur being gross or annoying, but rarely perma blocked. However, Fat/Racial caricature ponies r instantly perma blocked, sorry!!!!
+Fat/Racial caricature ponies r instantly perma blocked, sorry!!!!
 
 
 
 
-<img width="780" height="561" alt="wow 1x and loveshot wowowow" src="https://github.com/user-attachments/assets/863009ae-df07-435d-be83-90738507ec09" />
+<img width="680" height="561" alt="wow 1x and loveshot wowowow" src="https://github.com/user-attachments/assets/24870adf-33c4-4edf-88d3-cad5586aab82" />
+
