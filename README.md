@@ -11,7 +11,7 @@ ART FIGHT IS HERE!!!! --> https://artfight.net/~Moxzii
 
 HELLO... ˆ𐃷ˆ
 
-♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B OOMFSS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! ˎˊ˗
+♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B OOMFSS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! (i might get a bit shy tho,,,,) ˎˊ˗
 
 ♬⋆.˚ Cuddle + hide/hug always!! i hate seeing my pony lonely it makes me antsy, so dont b shy!!! and u can sit even when theres other ppl w me, every1 come hang out!!! ˎˊ˗
 
