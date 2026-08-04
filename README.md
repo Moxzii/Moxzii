@@ -20,7 +20,7 @@ HELLO... ˆ𐃷ˆ
 
 ⊹ ࣪ ˖ Sign my atabook 2 see the number go up!!!!!!!
 
-the first strawpage is for ponytown, while the second one is my general personal one! wow!
+
 
 <img width="730" height="36" alt="cute af divider" src="https://github.com/user-attachments/assets/53bc838d-8954-47c5-a27b-5da8788e4690" />
 
