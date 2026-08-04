@@ -1,4 +1,4 @@
-ART FIGHT IS HERE!!!! --> https://artfight.net/~Moxzii
+
 
   <img width="99" height="56" alt="loveshot stamp 2" src="https://github.com/user-attachments/assets/45318514-8422-4682-9fd1-c0adcfb8473f" />
 <img width="99" height="56" alt="betraye 1x 3" src="https://github.com/user-attachments/assets/ea9c3e25-cde2-4f5a-9c0a-2e36cfc26399" />
