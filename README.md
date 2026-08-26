@@ -10,8 +10,6 @@
 
 HELLO... ˆ𐃷ˆ
 
-(not quite sure how the pony town hall of media works just yet, but i'd appreciate if i was nominated for ponytowns Loveshot Dusekkar if there isnt one already. if there is and i just missed it, please lmk via strawpage, ty! ^^)
-
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B MOOTS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! (i might get a bit shy tho,,,,) ˎˊ˗
 
 ♬⋆.˚ Cuddle + hide/hug always!! i hate seeing my pony lonely it makes me antsy, so dont b shy!!! and u can sit even when theres other ppl w me, every1 come hang out!!! ˎˊ˗
