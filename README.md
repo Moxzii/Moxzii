@@ -32,9 +32,6 @@ HELLO... ˆ𐃷ˆ
 u may take inspo from my ponies!!! i would love to help you out with something u want to add 2 ur pony from mine and i enjoy seeing my work referenced so dont b afraid 2 ask 4 help (if im idling u can send me a friend req and ill help once im on again) !! however pls do not directly copy my ponies!!! its not very nice :o(
 
 
-although i allow anyone to sit with me, please keep in mind that im not comfortable with Pizzadebt specificaly as in my brain theyre related x.x..... u can still hang out as a mafioso just something to keep in mind --> any other ship (obviously excluding darkships) are absolutely allowed!!! if it makes u happy 2 see our ponies match then go ahead!!
-
-
 Fat/Racial caricature ponies r instantly perma blocked, sorry!!!!
 
 
