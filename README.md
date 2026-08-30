@@ -33,7 +33,7 @@ u may take inspo from my ponies!!! i would love to help you out with something u
 Fat/Racial caricature ponies r instantly perma blocked, sorry!!!!
 
 
-
+this is not a spam follow account!! i just love following ppl.......
 
 <img width="680" height="561" alt="wow 1x and loveshot wowowow" src="https://github.com/user-attachments/assets/24870adf-33c4-4edf-88d3-cad5586aab82" />
 
