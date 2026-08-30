@@ -12,7 +12,7 @@ HELLO... ˆ𐃷ˆ
 
 ♡ˎˊ˗ i am VERY FRIENDLY!!!!  (˶ᵔ ᵕ ᵔ˶) I WOULD LOVE 2 B MOOTS!!!! PLEASE TALK TO ME!!!! I LOVE YOU!!!!!!!!!!!!!!!! (i might get a bit shy tho,,,,) ˎˊ˗
 
-♬⋆.˚ Cuddle + hide/hug always!! i hate seeing my pony lonely, so dont b shy!!! and u can sit even when theres other ppl w me, every1 come hang out!!! ˎˊ˗
+♬⋆.˚ Cuddle + hide/hug always!! i hate seeing my pony lonely, so dont b shy!!! and u can sit even when theres other ppl w me, every1 come hang out!!!(i prefer 2 sit in silence and do nothing so dont worry abt it being awkward if we dont talk,,,, its intentional) ˎˊ˗
 
 ｡𖦹°‧ im a playing a game while idling on ponytown warrior, even if u whisper me ill prolly respond late if at all unless im ontab lel sorry!!! i do see ur messages tho (..◜ᴗ◝..)
 
